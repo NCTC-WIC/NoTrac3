@@ -1,4 +1,4 @@
-# **NO TRAC3 COUNTER THREAT COALITION (NCTC)**
+# **NOTRAC3 COUNTER THREAT COALITION (NCTC)**
 ## **Public Charter & Operational Philosophy**
 ### **A Fellowship of the Wounded Who Fight**
 
